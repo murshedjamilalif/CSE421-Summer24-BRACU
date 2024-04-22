@@ -1,4 +1,5 @@
 # CSE421-Summer24-BRACU 💡
+![Rage Throw](https://media1.tenor.com/m/JBCnBB-6UiwAAAAd/rage-throw.gif)
 
 
  
